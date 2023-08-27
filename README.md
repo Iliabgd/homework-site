@@ -11,4 +11,5 @@
 - чуть-чуть айтишник и чуть-чуть программер
 - рон-н-ролл жив!
   
-![в ДР с мандаринами](https://disk.yandex.ru/i/ZfAhUSjd9oKDmw)
+![мандарины](https://github.com/Iliabgd/homework-site/assets/142723391/e73a0934-714e-4346-acac-6c4b8f26c070)
+
